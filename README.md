@@ -2,7 +2,7 @@
 
 康老师的主页：[https://yanfei.site/](https://yanfei.site/)
 
-李老师的主页：[http://feng.li/](http://feng.li/)
+李老师的主页：[https://feng.li/](http://feng.li/)
 
 KLLab 的主页：[https://kllab.org](https://kllab.org)
 
